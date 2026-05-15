@@ -1,2 +1,2 @@
 # zadaniev2
-frontofrontmentor
+jakies takie zakladki sam nie wiem co to jest
